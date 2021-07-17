@@ -1,1 +1,0 @@
-# mallikampatil.github.io
